@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NeewCoder
+- 👋 Hi, I’m Proffesional coder
 - 👀 I’m interested in learning coding
 - 🌱 I’m currently trying learn coding
 - 💞️ I’m looking to collaborate on coding
